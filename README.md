@@ -2,7 +2,7 @@
 
 **Attention Xbox fans!** Here's an amazing opportunity for you to grab a **$100 US Xbox Gift Card Code for Free**! That's right, you can get your hands on this limited-time offer that could enhance your gaming experience with a variety of in-game content, Xbox Live memberships, or even new games. Keep reading to find out how you can claim this incredible offer and make the most out of your Xbox gaming experience!
 
-### [✅👉CLICK HERE TO GET NOW!](https://shorturl.at/y74CQ)
+### [✅👉CLICK HERE TO GET NOW!](https://justfree.xyz/xbox/go/)
 
 ## What is an Xbox Gift Card and Why Should You Want One?
 
